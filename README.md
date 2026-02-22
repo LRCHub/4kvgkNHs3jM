@@ -1,4 +1,4 @@
-# RADWIMPS – 愛にできることはまだあるかい
+# RADWIMPS – 愛にできることはまだあるかい - Is There Still Anything That Love Can Do?
 
 > **歌詞登録ステータス：同期歌詞あり**
 
